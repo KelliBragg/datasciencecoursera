@@ -1,0 +1,1 @@
+Foregin concepts in foreign languages (and I know basic Java programming)...gets those gray cells working. Now I know how Poirot feels.
